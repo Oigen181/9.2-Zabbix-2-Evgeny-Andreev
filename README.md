@@ -1,6 +1,14 @@
 ### Задание 1
 
-![123](https://user-images.githubusercontent.com/126493876/227010324-467bed16-9e87-4638-b36b-49589123a2f2.jpg)
+![128](https://user-images.githubusercontent.com/126493876/227883311-1a7e557a-9365-4d3d-95d0-97e79b454f5b.jpg)
+
+![129](https://user-images.githubusercontent.com/126493876/227883348-b83fedea-1e33-444a-adeb-f1d8f8a0f632.jpg)
+
+![130](https://user-images.githubusercontent.com/126493876/227883379-6a92d5b5-bc86-493a-b298-f03331798d77.jpg)
+
+![131](https://user-images.githubusercontent.com/126493876/227883395-5a859c56-d1cf-484c-9b32-e3a6758e101b.jpg)
+
+
 
 ### Задание 2
 
